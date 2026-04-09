@@ -1,0 +1,2 @@
+# mexaVaro
+Politica de Privacidad
